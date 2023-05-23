@@ -4,7 +4,7 @@ List of skins Umbre has been/is using
 ## Mania
 
 ### [Reshiramu 4k](https://drive.google.com/file/d/1zNddNgNRQOUzs9ugVj38si994LnldYu2/view)
-![](https://imgur.com/a/0i8xNxT)
+![reshimaru](https://imgur.com/a/0i8xNxT)
 
 ### [pl0x circles 4k](https://www.dropbox.com/s/q2s7uuleh2ksq3v/pl0x%20circles%20%28instal%20edit%29.osk?dl=0)
 ![](https://imgur.com/a/SLuMwZI)
