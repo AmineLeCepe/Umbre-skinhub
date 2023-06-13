@@ -41,3 +41,8 @@ If you have not been credited for your work on a certain skin here, create an [i
 
 ### [mania circle short ln 7k](https://www.dropbox.com/s/8e2ccpvw0mptnns/mania%20circle%20short%20ln.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1110709386617307167/mania_circle_short_ln_7k.png)
+
+## CTB
+
+### [coro skin 2.8](https://www.dropbox.com/s/x4rw7vhmx1xoucy/-%20%23coro%20skin%202.8.osk?dl=0)
+![](https://cdn.discordapp.com/attachments/822227981770424350/1118292057233043576/image.png)
