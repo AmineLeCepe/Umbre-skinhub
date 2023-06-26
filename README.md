@@ -31,6 +31,10 @@ If you have not been credited for your work on a certain skin here, create an [i
 ### [Uncanny cat](https://cdn.discordapp.com/attachments/961768173684789248/1121543398025871450/canny_cat.osk)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1122976552716619846/image.png)
 
+### [Azerino](https://cdn.discordapp.com/attachments/1084594740940517376/1123016869784322068/azerino_stare.osk)
+![](https://cdn.discordapp.com/attachments/822227981770424350/1123020969909432481/image.png)
+
+
 ## Mania
 
 ### [Reshiramu 4k](https://drive.google.com/file/d/1zNddNgNRQOUzs9ugVj38si994LnldYu2/view)
