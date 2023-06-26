@@ -25,7 +25,8 @@ If you have not been credited for your work on a certain skin here, create an [i
 ### [Rohulk 5.0b](https://www.dropbox.com/s/sz68rrgskj9kbr4/Rohulk%205.0b.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1110709867242594405/Rohulk_5.0b.png)
 
-### [Windows 98](https://www.dropbox.com/s/u9cr624arb130el/-_Windosu_98_Pointer_Version_1.2.osk?dl=0)
+### [Windows 98 (no this is not windowed mode)](https://www.dropbox.com/s/u9cr624arb130el/-_Windosu_98_Pointer_Version_1.2.osk?dl=0)
+![](https://cdn.discordapp.com/attachments/822227981770424350/1122978204899086449/image.png)
 
 ### [Uncanny cat](https://cdn.discordapp.com/attachments/961768173684789248/1121543398025871450/canny_cat.osk)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1122976552716619846/image.png)
