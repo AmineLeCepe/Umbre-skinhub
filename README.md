@@ -27,6 +27,9 @@ If you have not been credited for your work on a certain skin here, create an [i
 
 ### [Windows 98](https://www.dropbox.com/s/u9cr624arb130el/-_Windosu_98_Pointer_Version_1.2.osk?dl=0)
 
+### [Uncanny cat](https://cdn.discordapp.com/attachments/961768173684789248/1121543398025871450/canny_cat.osk)
+![](https://cdn.discordapp.com/attachments/822227981770424350/1122976552716619846/image.png)
+
 ## Mania
 
 ### [Reshiramu 4k](https://drive.google.com/file/d/1zNddNgNRQOUzs9ugVj38si994LnldYu2/view)
