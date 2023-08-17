@@ -22,8 +22,8 @@ If you have not been credited for your work on a certain skin here, create an [i
 ### [Jinx](https://drive.google.com/file/d/1Rxv4GGo0VKzs2jdonLPf8Zr5kT1CMe3x/view)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1141122739143442522/image.png)
 
-### [Jinx edit](https://cdn.discordapp.com/attachments/1084594740940517376/1141835646772719647/Umbre_jinx_edit.osk)
-![](https://cdn.discordapp.com/attachments/822227981770424350/1141122739143442522/image.png)
+### [Jinx edit (playable version)](https://cdn.discordapp.com/attachments/1084594740940517376/1141835646772719647/Umbre_jinx_edit.osk)
+![](https://cdn.discordapp.com/attachments/822227981770424350/1141837069547753492/image.png)
 
 ### [MonkoGlass](https://www.dropbox.com/s/xvjppf3k7p0ifce/MonkoGlass.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1110709758392021003/MonkoGlass.png)
