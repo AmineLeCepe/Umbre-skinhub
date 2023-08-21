@@ -19,7 +19,7 @@ If you have not been credited for your work on a certain skin here, create an [i
 ### [Bloo](https://drive.google.com/file/d/1OaAYtWzKcjBmOT0D1XKpnHxPqdMUZPyT/view)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1110709701290762240/Bloo.png)
 
-### [Jinx](https://drive.google.com/file/d/1Rxv4GGo0VKzs2jdonLPf8Zr5kT1CMe3x/view)
+### [Jinx](https://drive.google.com/file/d/1FeEPNUsuOK-kPqHF0wp8kRGdaHAIMirx/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1141122739143442522/image.png)
 
 ### [Jinx edit (playable version)](https://cdn.discordapp.com/attachments/1084594740940517376/1141835646772719647/Umbre_jinx_edit.osk)
