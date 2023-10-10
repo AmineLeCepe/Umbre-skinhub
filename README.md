@@ -19,6 +19,9 @@ If you have not been credited for your work on a certain skin here, create an [i
 ### [Bloo](https://drive.google.com/file/d/1OaAYtWzKcjBmOT0D1XKpnHxPqdMUZPyT/view)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1110709701290762240/Bloo.png)
 
+### [boop](https://cdn.discordapp.com/attachments/1084594740940517376/1161411659202580581/boop.osk?ex=653833e5&is=6525bee5&hm=1bd95a2cdc8fd56173a18887a5e9c58a16830498798db3f8018e8c7d8805cd91&)
+![](https://cdn.discordapp.com/attachments/1084594740940517376/1161413312945328218/image.png?ex=6538356f&is=6525c06f&hm=9157c7fea6d8b6a4846c5380a0e53ebb7444a14010e1a058c412a52c5aa5acf0&)
+
 ### [Jinx](https://drive.google.com/file/d/1FeEPNUsuOK-kPqHF0wp8kRGdaHAIMirx/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1141122739143442522/image.png)
 
