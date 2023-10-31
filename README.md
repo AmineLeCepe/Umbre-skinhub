@@ -7,6 +7,9 @@ If you have not been credited for your work on a certain skin here, create an [i
 
 ## Standard
 
+### [Jinx edit (playable version)](https://cdn.discordapp.com/attachments/1084594740940517376/1169036999131398144/-_Umbre_jinx_edit.osk?ex=6553f18c&is=65417c8c&hm=ced9f6215bba499efd79fa7b6be9ca15bb5a14aa1c28419b5a874810efc3779b&)
+![](https://cdn.discordapp.com/attachments/822227981770424350/1141837069547753492/image.png)
+
 ### [- Amaestric](https://www.dropbox.com/s/wdyokgldquamim7/-%20Amaestric.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1110709461686956052/-_Amaestric.png)
 
@@ -24,9 +27,6 @@ If you have not been credited for your work on a certain skin here, create an [i
 
 ### [Jinx](https://drive.google.com/file/d/1FeEPNUsuOK-kPqHF0wp8kRGdaHAIMirx/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1141122739143442522/image.png)
-
-### [Jinx edit (playable version)](https://cdn.discordapp.com/attachments/1084594740940517376/1141835646772719647/Umbre_jinx_edit.osk)
-![](https://cdn.discordapp.com/attachments/822227981770424350/1141837069547753492/image.png)
 
 ### [MonkoGlass](https://www.dropbox.com/s/xvjppf3k7p0ifce/MonkoGlass.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1110709758392021003/MonkoGlass.png)
