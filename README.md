@@ -28,6 +28,9 @@ If you have not been credited for your work on a certain skin here, create an [i
 ### [Jinx](https://drive.google.com/file/d/1FeEPNUsuOK-kPqHF0wp8kRGdaHAIMirx/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1141122739143442522/image.png)
 
+## [Mario](https://www.dropbox.com/scl/fi/6whzl00y1enyaiem6y9xn/Umbre-jinx-mario-edit.osk?rlkey=2kgu277tjnn5p7hdra6yl6wuj&dl=0)
+
+
 ### [MonkoGlass](https://www.dropbox.com/s/xvjppf3k7p0ifce/MonkoGlass.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/822227981770424350/1110709758392021003/MonkoGlass.png)
 
