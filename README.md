@@ -1,5 +1,5 @@
 # Umbre's skinhub
-
+## THIS REPO IS OBSOLETE, PLEASE ASK UMBRE DIRECTLY FOR SKIN RELATED INQUIRIES/ISSUES
 List of skins Umbre has been/is using
 
 If you have not been credited for your work on a certain skin here, create an [issue.](https://github.com/AmineLeCepe/Umbre-skinhub/issues/new)
